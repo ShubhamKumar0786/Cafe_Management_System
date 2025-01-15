@@ -85,7 +85,7 @@ Contributions are welcome! If you have suggestions or improvements, feel free to
 If you have any questions or feedback, please contact:
 
 - 📧 Email: shubhamkashyap9501@email.com  
-- Linkedin : https://www.linkedin.com/in/shubham9797/
+- LinkedIn: [Linkedin_link](https://www.linkedin.com/in/shubham0786/)
 
 
 ---
